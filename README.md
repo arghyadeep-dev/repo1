@@ -1,2 +1,2 @@
-Fuck you.
-Madar chod
+Hi
+How are you
